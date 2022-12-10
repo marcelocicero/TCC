@@ -1,4 +1,4 @@
-# Trabalho Diplomação em Engenharia De Computação 2º/2022
+# Trabalho Diplomação em Engenharia De Computação - 2º/2022
 <br/><br/>
 
 <br/><br/>
